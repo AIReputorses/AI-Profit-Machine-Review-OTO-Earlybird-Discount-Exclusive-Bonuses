@@ -90,6 +90,8 @@ AI Profit Machine caters to a diverse customer base, including:
 
 **How AI Profit Machine Works in 3 Simple Steps**
 
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/1a/c083aae1074a3b892deb5921462610/steps1.1.png)
+
 **Step 1: ACCESS**  
 Request your access right now.
 
@@ -123,6 +125,9 @@ AI Profit Machine ideal for:
 - YouTubers
 
 # Why Choose AI Profit Machine?
+
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/a9/74dfe545f34a888f54d1ab0a204633/g7.png)
+
 Here’s why you should choose AI Profit Machine:
 
 - **No Monthly Fees:** There are no subscription costs for premium tools.
@@ -143,9 +148,11 @@ Take advantage of this $447,000 Done-For-You business powered by AI, which can e
 
 - Behind the Scenes of a $6,000/month AI Business for $17.95.
 
-YES, show me how to earn $6,000/month with an AI business! Discover the free tools we used, the strategies to drive traffic, and every tactic and secret to generating over $6,000/month. You can apply these insights to create your very own AI Millionaire business. Add to cart for a one-time offer!
+YES, show me how to earn $6,000/month with an AI business! Discover the free tools we used, the strategies to drive traffic, and every tactic and secret to generating over $6,000/month. You can apply these insights to create your very own AI Millionaire business. Add to the cart for a one-time offer!
 
 **OTO 1: AI Premium Partner Pack - $197**
+
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/96/5d8e506b5e4d7aa7cfef87cd62433c/Mac-members.png)
 
 *An exit popup will offer a two-part payment plan (2 payments of $98.50).*
 
@@ -162,6 +169,8 @@ YES, show me how to earn $6,000/month with an AI business! Discover the free too
 
 **OTO 2: 10X AI Profit Partners - $97**
 
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/30/cad0fe942b4ceda764dbf7ae7b4088/Mac-members.png)
+
 - Point & Click Profits**
 
 - 10X Profit Program**
@@ -176,6 +185,8 @@ YES, show me how to earn $6,000/month with an AI business! Discover the free too
 
 **OTO 3: AI Profit Machine Lifetime Reseller - $97**
 
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/b1/5a9c8189064a0292deda57e7a838b7/Mac-reseller.png)
+
 https://live.aiprofitmachine.net/do-not-close-keep-all-the-profits
 
 - Done-For-You Promotions**
@@ -185,6 +196,10 @@ https://live.aiprofitmachine.net/do-not-close-keep-all-the-profits
 - Fast Track Guaranteed Approval**
 
 - Swipe & Deploy Professional Graphics**
+
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/8f/ccdb095e4f4c518ec864dad125df4b/buy-9.png)
+
+**[➡️ → Claim Your Copy Today! And Check Upgrade + Claim $25,000 Bonuses Free>>>](https://bonuscrates.blogspot.com/2024/11/ai-profit-machine.html/)**
 
 # Who is the primary user?
 # AI Profit Machin – Pros and cons
@@ -204,6 +219,8 @@ https://live.aiprofitmachine.net/do-not-close-keep-all-the-profits
 This revised version clarifies the original text while ensuring correct grammar, punctuation, and spelling.
 
 # **AI Profit Machine - Special Bonuses Just For You:**
+
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/35/5fef62162345e59763ffea5c525ed9/Bundle-with-glow.png)
 
 - **AI Traffic Machine (Value: $197)** - **Free Today**  
   Access done-for-you traffic assets that you can activate and deploy to start making commissions.
@@ -226,11 +243,39 @@ This revised version clarifies the original text while ensuring correct grammar,
 
 - ![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/15/f0a7bb9eab40a48dc989632c25e188/button-9.png)
 
+**[➡️ → Claim Your Copy Today! And Check Upgrade + Claim $25,000 Bonuses Free>>>](https://bonuscrates.blogspot.com/2024/11/ai-profit-machine.html/)**
+
+# About The Creator:
+From the Desk of Michael Cheney
+Dear Friend,
+
+In the next few minutes, you're going to discover the breakthrough AI Profit Machine that makes you money almost entirely on autopilot.
+
+All you have to do is tell this machine what you want it to sell, and it does all the selling for you.
+
+My name is Michael Cheney and I've been making money online since the year 2000.
+
+I've been interviewed on NBC television, spoken at sold out events around the world and have published several books on marketing.
+
+But more importantly than that, I've immersed myself in artificial intelligence for the past 18 months.
+
+I've invested hundreds of thousands of dollars in AI tech and also learning
+
+But not only that, I've actually coded my own AI machines.
+
+And now this AI Profit Machine helps to run my business, making money while I sleep.
+
+Here’s how this works:
+
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/aa/feab4281114df498b66d2fc6c7cb72/comparison.png)
+
 # **How AI Profit Machine Compares to Others**
 
 A visual comparison of AI Profit Machine with other affiliate marketing tools highlights its simplicity and the comprehensive support it receives from artificial intelligence. While it may not offer some of the advanced features found in platforms like ClickFunnels or SEMrush, it provides an accessible option for beginner traders.
 
-**Real User Experiences**
+# **Real User Experiences**
+
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/74/d35a479f344b89806bbc21d6737a6a/proof4.png)
 
 The success stories from real users demonstrate the investment potential of AI Profit Machine across various demographics:
 
@@ -241,6 +286,9 @@ The success stories from real users demonstrate the investment potential of AI P
 - An experienced marketer is boosting their current earnings by an extra $3,000 each month.
 
 These examples illustrate the diverse opportunities available to users of AI Profit Machine.
+
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/53/d3297c49054b58a386012cb9f5aa7f/proofs5.png)
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://live.aiprofitmachine.net/hosted/images/74/1b77a0eee947a7953fcb0f9d53b611/proof6.png)
 
 # **My Honest Opinion: Is It Worth Your Hard-Earned Money?**
 
